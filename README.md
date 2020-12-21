@@ -1,0 +1,2 @@
+# al-kuat
+ketugasan
